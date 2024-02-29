@@ -1,1 +1,2 @@
-# Jurnal2_Muhammad-Riza-Rabbani_607062300004
+# Nama: Muhammad Riza Rabbani
+# Nim : 607062300004
