@@ -1,0 +1,1 @@
+# Jurnal2_Muhammad-Riza-Rabbani_607062300004
